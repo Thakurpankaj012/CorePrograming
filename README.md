@@ -1,2 +1,0 @@
-# CorePrograming
-# CorePrograming
